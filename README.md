@@ -1,1 +1,1 @@
-# Dolgozat
+#Kiss Áron
